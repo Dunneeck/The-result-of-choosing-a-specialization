@@ -1,1 +1,1 @@
-# The-result-of-choosing-a-specialization
+# The result of choosing a specialization
